@@ -1,16 +1,21 @@
-## Hi there 👋
+## Yeu88
 
-<!--
-**yeu88r/yeu88r** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Chào mừng quý khách đến với trang web giải trí Yeu88 - Nhà cái Yeu88 uy tín hàng đầu châu á với nhiều sản phẩm cá cược hàng đầu trên thế giới Thể Thao, Casino, Xổ Số, Đá Gà, Nổ Hũ, Bắn Cá, Game Bài
 
-Here are some ideas to get you started:
+Thông tin liên hệ :
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Website: https://yeu88r.one/
+
+Hotline: 84 328777424
+
+Address: Đông Hưng Thuận, Quận 12, Hồ Chí Minh, Việt Nam
+
+ZipCode: 71508
+
+https://x.com/yeu88r
+
+https://www.pinterest.com/yeu88r/
+
+https://www.youtube.com/channel/UC2R6rM38eTOS1c_5NFvy_gw
+
+https://www.twitch.tv/yeu88r
